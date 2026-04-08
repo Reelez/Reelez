@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **relezjr27@gmail.com**
 
-- ⚡ Fun fact **If you see me in person, Im always listening music and dancing.**
+- ⚡ Fun fact **If you see me in person, I'm always listening to music and dancing.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
